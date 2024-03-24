@@ -9,7 +9,7 @@
 
 
 
-Uploading p6.mp4…
+https://github.com/saeeddev-ir/landing-portfolio-en/assets/105293554/7dda8df1-1992-40b9-b861-9463fdc699d1
 
 
 
